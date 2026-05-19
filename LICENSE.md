@@ -1,4 +1,4 @@
-# 
+# updated Visual Studio for PC plugins is the best Visual Studio for PC plugins with query-editor and data-visualization. Safe, reliable, and optimized for maximum performance.
 
 
 
